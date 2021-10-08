@@ -2,7 +2,7 @@
 
 I am a business reporter and economics student at Scripps College in Claremont, California. I previously reported on real estate for Bloomberg News and business and Covid-19 for the Sacramento Bee. I also served as editor-in-chief for The Student Life, the student newspaper of the seven Claremont Colleges. 
 
-I plan to graduate in May 2020 after completing a senior thesis examining the effects of housing prices on movement in the rental market. I'm interested in covering business news.  
+I plan to graduate in May 2020 after completing a senior thesis examining the effects of housing prices on movement in the rental market. I'm interested in business news and data. 
 
 
 ### Contact me
