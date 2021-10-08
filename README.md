@@ -4,14 +4,17 @@ I am a business reporter and economics student at Scripps College in Claremont, 
 
 I plan to graduate in May 2020 after completing a senior thesis examining the effects of housing prices on movement in the rental market. I'm interested in covering business news.  
 
+
+### Contact me
+
 Want to get in touch? Visit my [contact page](https://github.com/heetermaria/contact).
 
-Follow me here: 
+### Follow me
 
 * [Twitter](https://twitter.com/heetermaria)
 * [LinkedIn](https://www.linkedin.com/in/heetermaria/)
 
-Here is some of my best work:
+### My best work
 
 *While at Bloomberg*
 * Broke two national student housing deals by private equity firms: Blackstone’s stake in a [$784 million portfolio](https://www.bloomberg.com/news/articles/2021-08-20/blackstone-takes-stake-in-784-million-student-housing-portfolio) and Brookfield’s [$1 billion housing venture](https://www.bloomberg.com/news/articles/2021-08-19/brookfield-said-to-plan-1-billion-u-s-student-housing-venture). 
