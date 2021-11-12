@@ -22,10 +22,10 @@ Want to get in touch? Visit my [contact page](https://github.com/heetermaria/con
 * Revealed that [colleges were offering cash](https://www.bloomberg.com/news/articles/2021-08-03/elite-colleges-dangle-cash-ski-passes-to-ease-a-housing-crunch) and other incentives to alleviate a nationwide dormitory shortage for a story that was one of the most read on The Bloomberg Terminal and followed by national outlets. 
 
 *While at The Sacramento Bee*
-* Broke exclusive that Airbnb would, in a first, pursue legal action against a tenant for hosting a party that ended in a shooting. Story was followed by multiple national outlets. 
+* Broke exclusive that Airbnb would, in a first, [pursue legal action](https://www.sacbee.com/news/business/article244905057.html) against a tenant for hosting a party that ended in a shooting. Story was followed by multiple national outlets. 
 
 *While at The Student Life*
-* Scooped how and when Harvey Mudd College planned to reopen campus for fall 2020. 
+* Scooped how and when Harvey Mudd College [planned to reopen campus](https://tsl.news/hmc-fall-plans-board-of-trustees/) for fall 2020. 
 * Scooped spring 2020 grading policies from three of the five undergraduate Claremont Colleges.
 
 See my compiled Bloomberg stories [here](https://www.bloomberg.com/authors/AVRj08qK-uQ/maria-heeter).
