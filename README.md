@@ -17,7 +17,7 @@ Want to get in touch? Visit my [contact page](https://github.com/heetermaria/con
 ### My best work
 
 *Most recently*
-* Scooped the news that the undergraduate Claremont Colleges would begin the spring 2022 [semester online] (https://twitter.com/heetermaria/status/1478910169115500545?s=20&t=yfIRa-E2hFGMOe7FiAIlAw). 
+* Scooped the news that the undergraduate Claremont Colleges would begin the spring 2022 [semester online](https://twitter.com/heetermaria/status/1478910169115500545?s=20&t=yfIRa-E2hFGMOe7FiAIlAw). 
 
 *While at Bloomberg*
 * Broke two national student housing deals by private equity firms: Blackstone’s stake in a [$784 million portfolio](https://www.bloomberg.com/news/articles/2021-08-20/blackstone-takes-stake-in-784-million-student-housing-portfolio) and Brookfield’s [$1 billion housing venture](https://www.bloomberg.com/news/articles/2021-08-19/brookfield-said-to-plan-1-billion-u-s-student-housing-venture). 
