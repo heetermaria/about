@@ -16,9 +16,6 @@ Want to get in touch? Visit my [contact page](https://github.com/heetermaria/con
 
 ### My best work
 
-*Most recently*
-* Scooped the news that the undergraduate Claremont Colleges would begin the spring 2022 [semester online](https://twitter.com/heetermaria/status/1478910169115500545?s=20&t=yfIRa-E2hFGMOe7FiAIlAw). 
-
 *While at Bloomberg*
 * Broke two national student housing deals by private equity firms: Blackstone’s stake in a [$784 million portfolio](https://www.bloomberg.com/news/articles/2021-08-20/blackstone-takes-stake-in-784-million-student-housing-portfolio) and Brookfield’s [$1 billion housing venture](https://www.bloomberg.com/news/articles/2021-08-19/brookfield-said-to-plan-1-billion-u-s-student-housing-venture). 
 * Broke the exclusive news of the pricing on a [Billionaires' Row duplex](https://www.bloomberg.com/news/articles/2021-08-13/manhattan-billionaires-row-duplex-gets-a-150-million-price-tag).
@@ -30,6 +27,9 @@ Want to get in touch? Visit my [contact page](https://github.com/heetermaria/con
 *While at The Student Life*
 * Scooped how and when Harvey Mudd College [planned to reopen campus](https://tsl.news/hmc-fall-plans-board-of-trustees/) for fall 2020. 
 * Scooped spring 2020 grading policies from three of the five undergraduate Claremont Colleges.
+
+*Most recently*
+* Scooped the news that the undergraduate Claremont Colleges would begin the spring 2022 [semester online](https://twitter.com/heetermaria/status/1478910169115500545?s=20&t=yfIRa-E2hFGMOe7FiAIlAw). 
 
 See my compiled Bloomberg stories [here](https://www.bloomberg.com/authors/AVRj08qK-uQ/maria-heeter).
 For my Sacramento Bee stories, see [here](https://www.sacbee.com/profile/243181441).
