@@ -2,7 +2,7 @@
 
 I'm an economics student at Scripps College in Claremont, California. In May, I'll join The Information as a reporter on the cryptocurrency/venture capital/finance team. I previously reported on real estate for Bloomberg News and business/Covid-19 for the Sacramento Bee. I also served as editor-in-chief for The Student Life, the student newspaper of the seven Claremont Colleges. 
 
-I plan to graduate in May 2022 after completing a senior thesis examining the effects of housing prices on movement in the rental market. I'm interested in economic analysis, datasets and all things confidential. 
+I plan to graduate in May 2022 after completing a senior thesis examining the efficiency of the rental market. I'm interested in economic analysis, datasets and all things confidential. 
 
 
 ### Contact me
