@@ -15,6 +15,12 @@ To contact me, visit my [contact page](https://github.com/heetermaria/contact).
 
 ### My best work
 
+*While at The Information*
+* Broke news that Arctic Wolf, the cybersecurity startup valued at $4.3 billion, was in talks to raise $300 million in convertible debt. 
+* Broke news that KKR, the private equity giant with more than $470 billion in AUM, was in talks to buy a venture lender and with headhunters to hire its own team. 
+* Broke news that Blackstone would earmark $2 billion for tech lending. 
+* Broke news that ServiceTitan's chief financial officer would step down. The software startup was last valued at $9.5 billion and has filed confidentially for an initial public offering. 
+
 *While at Bloomberg*
 * Broke two national student housing deals by private equity firms: Blackstone’s stake in a [$784 million portfolio](https://www.bloomberg.com/news/articles/2021-08-20/blackstone-takes-stake-in-784-million-student-housing-portfolio) and Brookfield’s [$1 billion housing venture](https://www.bloomberg.com/news/articles/2021-08-19/brookfield-said-to-plan-1-billion-u-s-student-housing-venture). 
 * Broke the exclusive news of the pricing on a [Billionaires' Row duplex](https://www.bloomberg.com/news/articles/2021-08-13/manhattan-billionaires-row-duplex-gets-a-150-million-price-tag).
@@ -26,8 +32,6 @@ To contact me, visit my [contact page](https://github.com/heetermaria/contact).
 *While at The Student Life*
 * Scooped how and when Harvey Mudd College [planned to reopen campus](https://tsl.news/hmc-fall-plans-board-of-trustees/) for fall 2020. 
 * Scooped spring 2020 grading policies from three of the five undergraduate Claremont Colleges.
-
-*Most recently*
 * Scooped the news that the undergraduate Claremont Colleges would begin the spring 2022 [semester online](https://twitter.com/heetermaria/status/1478910169115500545?s=20&t=yfIRa-E2hFGMOe7FiAIlAw). 
 
 See my compiled Bloomberg stories [here](https://www.bloomberg.com/authors/AVRj08qK-uQ/maria-heeter).
