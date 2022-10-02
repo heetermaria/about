@@ -16,7 +16,7 @@ To contact me, visit my [contact page](https://github.com/heetermaria/contact).
 ### My best work
 
 *While at The Information*
-* Broke news that Arctic Wolf, the cybersecurity startup valued at $4.3 billion, was in talks to raise $300 million in convertible debt. 
+* Broke news that Arctic Wolf, the cybersecurity startup valued at $4.3 billion, was in talks with Morgan Stanley and Owl Rock Capital to raise $300 million in convertible debt. 
 * Broke news that KKR, the private equity giant with more than $470 billion in AUM, was in talks to buy a venture lender and with headhunters to hire its own team. 
 * Broke news that Blackstone would earmark $2 billion for tech lending. 
 * Broke news that ServiceTitan's chief financial officer would step down. The software startup was last valued at $9.5 billion and has filed confidentially for an initial public offering. 
